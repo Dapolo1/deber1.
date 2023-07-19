@@ -24,3 +24,14 @@ Espolvorear el queso mozzarella sobre la salsa.
 6. Hornear la pizza:
 Colocar la pizza en una bandeja o piedra de pizza precalentada.
 Hornear durante 10-15 minutos hasta hasta que la masa este dorada y el queso este derretido.
+
+7. Terminar y servir:
+
+Retirar del horno y dejar reposar unos minutos.
+
+Cortar en porciones y servir caliente.
+
+Opcionalmente, agregar condimentos adicionales al gusto.
+
+Disfrutar de la deliciosa pizza de queso.
+
